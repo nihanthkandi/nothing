@@ -1,2 +1,2 @@
 # nothing
-its consist nothing
+beacause i know sone commands
